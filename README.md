@@ -1,5 +1,1 @@
-- 👋 Hi, I’m @AlfredoCeneri
-- 👀 I’m interested in risky C programs
-- 🌱 I’m currently learning how to be a computer guy
-- 💞️ I’m looking to collaborate on nothing for the moment
-- 📫 How to reach me cenerialfredo.8210@gmail.com
+yup, no bitches
